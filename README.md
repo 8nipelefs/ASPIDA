@@ -93,6 +93,22 @@ https://padlet.com/studentniptavrchan11/padlet-9r328lnbcgmguwkg/wish/2940598270
 Σταθμός Πρώτων Βοηθειών-Η ΑΣΠΙΔΑ του δάσους: Ο σταθμός πρώτων βοηθειών στο δάσος περιέχει πρώτες βοήθειες για ανθρώπους- επισκέπτες του δάσους, οι οποίοι μπορούν να ανιχνευτούν και αυτοί από το ρομπότ αλλά και πρώτες βοήθειες σε τραυματισμένα πουλιά , είτε σκανάροντας τις οδηγίες του δάσους με το κινητό τηλέφωνο είτε ειδοποιώντας μέσω του ρομπότ- ανιχνευτή τον δασοφύλακα να προβεί στια απαιτούμενες ενέργειες.
 https://youtu.be/B4t0HmGu2qQ
 
+ΒΙΒΛΙΟΓΡΑΦΙΑ
+
+[1]Wilson, R. A., (1994), Environmental Education at the Early Childhood Level, Washington DC: North American Association for Environmental Education.
+
+[2]Epstein, S., (1989), Values from the Perspective of Cognitive – Experiential Self-Theory, in N. Eisenberg, J. Reykowski & E. Staub (Eds.), Social and Moral Values – Individual and Societal Perspectives, Lawrence Erlbaum Associates: 3-22.
+
+[3]ΦΕΚ 2820/6-6-22
+
+[4] ΦΕΚ 687/Β/10-2-23
+
+[5] Nunes. S., Oliveira, T. A., & Oliveira, A. (2017) . Problem Based Learninng- a brief review. In AIP Conference Proceedings (Vol. 1863, No 1, p.550001). AIP Publishing LLC.
+
+[6] Barrows, H. S., & Tamblyn, R.M. (1980). Problem – based learning: An approach to medical education (Vol. 1). Springer Publishing Company.
+
+[7]Ζαχαρίου Α., & Κάτζη Χ. (2023). Ολιστική Σχολική Προσέγγιση: Μια ολοκληρωμένη παιδαγωγική θεώρηση για την Εκπαίδευση για την Αειφόρο Ανάπτυξη. Περιβαλλοντική Εκπαίδευση για την Αειφορία, 5(1), 163–176.
+
 
 
 
